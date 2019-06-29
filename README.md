@@ -1,0 +1,2 @@
+# An-explanation-of-Hackers-and-Crackers
+hackers are individuals who are interested in exploring specifically the workings of an internal system, computer, and network. Crackers are individuals who force their way into a system intentionally without permission with a bad purpose. that's an explanation of Hackers and Crackers not onequate yes obviously clearly very different.asalamualaikumwarohmatullahiwabarokatu
